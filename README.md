@@ -1,4 +1,4 @@
-👋 Hi, I’m @VladDaskalov
+👋 Hi, I’m Vladislav Daskalov
 
 👀 I’m interested in different areas / topics (as most of us I guess). My current professional area is software engineering. I moved to IT field around 12 years ago starting as Business Analyst. Over the years I went through a period in which I dealed with the management side of the IT operations. But dealing with the different tasks I realized that the technical area (the software engineering and development technical work) is the one that I like more and that make me feel glad. That is why I moved to software engineering and development.
 Outside the profession area I am interested in Automobiles, Electronic music and ... Personal Finances and Investments :)
